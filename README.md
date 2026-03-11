@@ -2,7 +2,7 @@
 
 👨 I'm Xinru Li (Daniel)
 🎓 Student at Duke Kunshan University from the class of 2028
-💻 Major in applied math/computer science
+💻 Major in Applied Math/Computer Science
 
 
 📫 How to contact me
