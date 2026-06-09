@@ -6,4 +6,4 @@
 
 
 📫 How to contact me
-📧 Email: danielwdnmd@gmail.com
+📧 Email: danielli0306@outlook.com
